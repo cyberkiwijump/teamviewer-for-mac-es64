@@ -1,4 +1,4 @@
-# 
+# new TeamViewer for macOS Addon | file-transfer + cross-platform-support is the best TeamViewer for macOS addon, featuring file-transfer and cross-platform-support. Powerful,
 
 
 
